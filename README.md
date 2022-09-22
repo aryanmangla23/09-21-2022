@@ -76,10 +76,9 @@ These feelings are never gon' break, but
 
 Baby I'm different, not even to close to a perfect man
 
-But one things for sure is I will hold your hand until the end
+But one things for sure is I will hold your hand until the end <br>
 
-
-Until the end, I'm working on being a better man
+<br> Until the end, I'm working on being a better man
 
 Emotions bend, and feelings change but that doesn't mean imma let em in
 
