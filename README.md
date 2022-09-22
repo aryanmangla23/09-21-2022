@@ -38,10 +38,9 @@ I just don't know how you feel about me
 
 I think that I do, but I always doubt me
 
-I wish you would call me tell me
-<br>
-<br>
-She called and she told me she loved it
+I wish you would call me tell me <br>
+
+<br> She called and she told me she loved it
 
 But now I keep pushing her buttons
 
