@@ -41,7 +41,6 @@ I think that I do, but I always doubt me
 I wish you would call me tell me
 
 
-
 She called and she told me she loved it
 
 But now I keep pushing her buttons
@@ -79,8 +78,6 @@ These feelings are never gon' break, but
 Baby I'm different, not even to close to a perfect man
 
 But one things for sure is I will hold your hand until the end
-
-
 
 
 Until the end, I'm working on being a better man
