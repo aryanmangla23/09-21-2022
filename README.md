@@ -2,7 +2,7 @@
 
 Previous [Diary](https://aryanmangla23.github.io/09-11-2022/)
 
-Next [Diary](https://aryanmangla23.github.io/09-25-2022/)
+Next [Diary](https://aryanmangla23.github.io/09-23-2022/)
 
 What I'm feeling tonight, I can't put it in words
 
